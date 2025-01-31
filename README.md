@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Wei Chen
-- 👀 I’m interested in basketball (NBA/NCAA), soccer games.
+- 👀 Basketball fan (NBA/NCAA).
 - 🌱 I’m currently learning fishing
 - 📫 Hit me on Slack
 
